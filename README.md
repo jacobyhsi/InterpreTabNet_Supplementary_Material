@@ -1,1 +1,1 @@
-# InterpreTabNet_Supplementary_Material
+# InterpreTabNet Supplementary Material
