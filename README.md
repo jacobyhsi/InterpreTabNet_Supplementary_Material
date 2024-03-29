@@ -1,3 +1,3 @@
 # InterpreTabNet Supplementary Material
 
-Please find the above for the supplementary material.
+Thank you very much for taking the time to review our rebuttal. Please find the above for the supplementary material.
